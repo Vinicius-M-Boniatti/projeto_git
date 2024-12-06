@@ -1,1 +1,1 @@
-Olá esse é um projeto Q USA O GIT     PORRA
+Olá esse é um projeto Q USA O GIT
